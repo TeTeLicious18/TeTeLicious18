@@ -2,7 +2,6 @@
 -  I’m interested in learning new skills andchallenging myself with new tasks everyday
 -  How to reach me:
 email: stefan.comisu@yahoo.com
-instagram: @comii18
 linkedin: https://www.linkedin.com/in/stefan-antonio-comisu-86923526a/
 
 <!---
